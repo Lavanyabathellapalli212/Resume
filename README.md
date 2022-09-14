@@ -1,1 +1,1 @@
-in this resume i am using html code 
+i am preparing sapmle resume
